@@ -1,4 +1,5 @@
-## Hi there 👋
+<p align="center">
+ Hi I'm 17, Okay with any pronouns but I prefer He/Him. I read lot and has a shitload amount of fandoms and interests. Mainly about alien stage or something. I like action-fantasy genres the most. I'm okay with interaction but don't expect much enthusiasm in the way I talk, I reply late and dry and I'll admit to it. But I'm mostly nonverbal and prefer silent company (huge cudcomf, please don't be afraid to interact). As to why I'm nonverbal, talking isn't my forte, I'm not shy, I just have nothing to say.
 
 <!--
 **YAOIGOD/YAOIGOD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
